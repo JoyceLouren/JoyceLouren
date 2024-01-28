@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Joycee Louren 💜✨
+## Bem-vindo(a) ao perfil da Joyce Louren 💜✨
 
  <div>
    <a href="https://github.com/JoyceLouren">
